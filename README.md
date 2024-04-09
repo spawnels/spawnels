@@ -1,7 +1,14 @@
 
 
- ![tumblr_ddff3fc125b617dd59932dccfa986e61_f5db4d03_400](https://github.com/coIlei/coIlei/assets/120334288/a9edd814-37f2-4ea6-a112-0858831c98dc) 
-[do ur daily clicks !!](https://arab.org/click-to-help/palestine/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀yves⠀⠀⠀⠀or⠀⠀⠀⠀albedo.
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she⠀⠀ﾉ⠀⠀he⠀⠀ﾉ⠀⠀they⠀⠀ﾉ⠀⠀doll !!
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://static.wikia.nocookie.net/gensin-impact/images/1/10/Icon_Emoji_Paimon%27s_Paintings_24_Sangonomiya_Kokomi_1.png/revision/latest/scale-to-width-down/250?cb=20230528042825)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[do ur daily clicks !!](https://arab.org/click-to-help/palestine/)⠀⠀⠀⠀[rentry](https://rentry.co/kngels)⠀⠀⠀⠀[guestbook](https://acheron.123guestbook.com)
+
+⠀⠀⠀⠀⠀⠀⠀i'm currently experimenting with my style, so please let me know if it's similar to yours !!!
 <!--
 **coIlei/coIlei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
