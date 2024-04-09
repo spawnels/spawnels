@@ -1,6 +1,18 @@
-[do ur daily clicks](https://arab.org/click-to-help/palestine/), [rentry](https://rentry.co/kngels), [guestbook](https://acheron.123guestbook.com)
+<div align="center">
 
-i willmake this look nicer late.r....
-(because i physically cannot do this)
+***
+ ㅤ
 
-experimenting with my style currently so lmk if it looks similar to urs
+  yves,ㅤ ㅤshe ㅤﾉ ㅤhe ㅤ!
+  
+![jwhudiaslda](https://github.com/coIlei/coIlei/assets/120334288/a31bb231-77d6-47d4-b5ea-e38b561c60c1)
+
+interactions are always okay, unless i have dniuf or dniuc in <br> my name, otherwise feel free to interact ! i don't bite ,,, *honest* !!!
+
+leave a msg on my guestbook, i'll *try* to respond as fast as i can !
+
+[do your daily clicks!](https://arab.org/click-to-help/palestine/)ㅤ ㅤㅤ[.coㅤkngels](https://rentry.co/kngels)ㅤ ㅤㅤ[guestbook](https://acheron.123guestbook.com)
+
+ ㅤ
+***
+</p>
