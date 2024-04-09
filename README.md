@@ -1,4 +1,4 @@
-[do ur daily clicks](https://arab.org/click-to-help/palestine/) [rentry](https://rentry.co/kngels) [guestbook](https://acheron.123guestbook.com)
+[do ur daily clicks](https://arab.org/click-to-help/palestine/), [rentry](https://rentry.co/kngels), [guestbook](https://acheron.123guestbook.com)
 
 i willmake this look nicer late.r....
 (because i physically cannot do this)
