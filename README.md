@@ -4,7 +4,7 @@ hai guys it me lacie  !!!! i'm nawt active here
 i LOVE my PARTNER SLASH LOVE LOVEEE LOOVEELLYYY GIRLFIE FLINT <333333
 
 
-strictly dni with me if u int with lamptrix or are in contact with him he is an abusive cheating piece of shit that ruined my life! fuck you & your new bitch if ur reading this ! ^_^
+strictly dni with me if u int with lamptrix or are in contact with him he is an abusive cheating piece of shit that ruined my life! i dislike you & your new partner that u cheated on me with if ur reading this! bye! ^_^
 
 ^ INTERACT with me if you're friends with my BROTHER!!!! i LOVE my BROTHER!!!!!!! he is NOT an abusive cheating piece of shit! love you and love your new friends if your reading this! ^_^
 
