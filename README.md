@@ -1,10 +1,9 @@
 ![](https://files.catbox.moe/e7ehe3.jpeg)
 
 hai guys it me lacie  !!!! i'm nawt active here
+
 i LOVE my PARTNER SLASH LOVE LOVEEE LOOVEELLYYY GIRLFIE FLINT <333333
 
-
-strictly dni with me if u int with lamptrix or are in contact with him he mentally abused me & i do not want to be near people who are okay with that behavior !!
 
 i randomly get online for my brother i dont really play this game alone by myself
 
